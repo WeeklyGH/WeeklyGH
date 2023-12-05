@@ -1,0 +1,5 @@
+- 👋 Hi, I'm @WeeklyGH
+- 👀 I 'm interested in finding out
+- 🌱 I am currently studying at school
+- 💞 ️ I'm not looking for cooperation.
+- No way to contact me.
